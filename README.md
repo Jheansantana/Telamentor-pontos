@@ -1,0 +1,1 @@
+# Telamentor-pontos
